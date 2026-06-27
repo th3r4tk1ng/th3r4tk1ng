@@ -12,6 +12,6 @@
 <p align="center">»Very quiet but feel free to interact I don't bite I promise! C+H okay.<br>
 <p align="center">»Basic DNI<br>
 <p align="center">»Often AFK but whisper and I'll see it eventually!<br>
-<p align="center">»I'm very easily spooked and nervouse to speak so it's unlikely I'll speak if not spoken to, but that doesn't mean I wouldn't want to chat.<br><br>
+<p align="center">»I'm very easily spooked and nervous to speak so it's unlikely I'll speak if not spoken to, but that doesn't mean I wouldn't want to chat.<br><br>
 <p align="center">⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘⫘<br>
 <p align="center"><img width="268" height="169" alt="wLPlDmz" src="https://github.com/user-attachments/assets/721aed82-f5f5-430c-94c2-d0d3b62d1c2b" />
